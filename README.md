@@ -1,2 +1,3 @@
-# Stake-All-Games-Predictor
-⭐️ Stake All Games Predictor | Stake Mines Predictor | Stake Dragon Tower Predictor | Stake Crash Predictor | Stake AI Predictor ⭐️
+# ARCHIVE PASSWORD: 2026
+
+[![button](pic.jpg)](https://linktr.ee/susanbrownu640)
